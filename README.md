@@ -1,1 +1,1 @@
-# primetrade.ai-Project-Cryptocurrency
+# Primetrade.ai-Project-Cryptocurrency
